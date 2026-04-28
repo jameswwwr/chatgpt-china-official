@@ -1,4 +1,4 @@
-# ChatGPT官方最新网址（ChatGPT 国内使用指南推荐）
+# ChatGPT官方最新网址（ChatGPT 国内镜像站指南推荐）
 
 > **最新更新**：2026年4月28日，OpenAI 持续更新 GPT-5 模型能力。本文为您提供最新的 ChatGPT 官网入口。
 
